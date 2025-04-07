@@ -1,13 +1,20 @@
-- National Scholarship of Graduate Student, 2024.
+- Advanced Individual in Advocating Truth and Studying Diligently, 2022¡¢2023¡¢2024.
 
-- First-prize Scholarship of CUMT, 2024.
+- The Second Prize in Shaanxi Division of the China Good Creativity Competition£¬2024
 
-- First-prize Scholarship of CUMT, 2023.
+- The Second - Prize of Shaanxi Division of NCDA£¬2024
 
-- Freshman Scholarship of CUMT, 2022.
+- Excellence Award of the Blue Bridge Cup Competition, 2024.
 
-- Excellent Graduation Project of Jiangsu Province, 2022.
+- Advanced Individual in Advocating Abilities and Cultivating Virtues, 2023.
 
-- First-prize Enterprise Scholarship of CUMT, 2020.
+- Outstanding Student Cadre, 2023.
 
-- First-prize Scholarship of CUMT, 2019.
+- Outstanding member of the Communist Youth League£¬2022
+
+- The Third Prize in the Northwest Region of the National Digital Media Technology Competition£¬2023.
+
+- Dongfeng Printing Academic Scholarship, 2023.
+
+- Outstanding member of the Communist Youth League£¬2022
+
